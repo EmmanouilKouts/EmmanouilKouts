@@ -8,7 +8,7 @@ A substantial part of my life revolved around unraveling the secrets of the cosm
 
 ## 💻 Data Enthusiast
 
-Having transitioned from theoretical physics, I now thrive in the dynamic realm of consulting. My experience at the Max Planck Institute for Physics and Ludwig Maximilian University honed my analytical skills and shaped my approach to problem-solving. I believe that data has the power to drive meaningful decisions. Whether it's analyzing market trends, optimizing business processes, or delving into the intricacies of datasets, I find joy in uncovering insights that shape strategic outcomes.
+Having transitioned from theoretical physics, I now thrive in the dynamic realm of consulting. I believe that data has the power to drive meaningful decisions. Whether it's analyzing market trends, optimizing business processes, or delving into the intricacies of datasets, I find joy in uncovering insights that shape strategic outcomes.
 
 ## 🕺 Passion for Personal Growth
 
