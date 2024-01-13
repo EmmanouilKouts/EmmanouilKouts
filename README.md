@@ -16,6 +16,6 @@ Beyond my professional pursuits, you might find me exploring avenues for persona
 
 ## 🚀 Let's Connect!
 
-I'm always open to new opportunities, collaborations, and engaging conversations. Whether it's discussing data strategies, sharing insights on business analytics, or exchanging ideas on personal development, feel free to reach out. Let's navigate the complexities of the real world together!
+I'm always open to new opportunities, collaborations, and engaging conversations. Whether it's discussing anything dance related, sharing insights on business analytics, or exchanging ideas on personal development, feel free to reach out. Let's navigate the complexities of the real world together!
 
 [Connect with me on LinkedIn](http://linkedin.com/in/dr-emmanouil-koutsangelas-a37359251)
